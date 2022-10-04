@@ -7,5 +7,5 @@
 - 💬 Ask me about the sounds in my basement
 - 📫 How to reach me: Check under your bed!
 - 😄 Pronouns: wd/40
-- ⚡ Fun fact: Flink has acquired Cajoo, your organs are next.
+- ⚡ Fun fact: Alex got a £20 train fine, however he cannot pay, and so northern will be harvesting his kidneys.
 
