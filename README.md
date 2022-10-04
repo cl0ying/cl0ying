@@ -1,6 +1,6 @@
 ### Hi they're 👋
 
-![image](https://user-images.githubusercontent.com/65313106/193830109-7351c882-6638-42c6-bee4-fdf057bda69d.png)![image](https://user-images.githubusercontent.com/65313106/193830121-9f27010b-83f3-4a67-aba5-1504dad256fb.png)![image](https://user-images.githubusercontent.com/65313106/193830129-f6c14278-5c8e-4398-a76c-9875d7d91ab6.png)
+![image](https://user-images.githubusercontent.com/65313106/193830109-7351c882-6638-42c6-bee4-fdf057bda69d.png)![image](https://user-images.githubusercontent.com/65313106/193830121-9f27010b-83f3-4a67-aba5-1504dad256fb.png)
 
 
 
@@ -15,6 +15,6 @@
 - 😄 Pronouns: wd/40
 - ⚡ Fun fact: Alex got a £20 train fine, however he cannot pay, and so northern will be harvesting his kidneys.
 
-![image](https://user-images.githubusercontent.com/65313106/193830012-738a351c-c326-41de-a804-2c8677b3bd3d.png)![image](https://user-images.githubusercontent.com/65313106/193830068-70445e1c-9246-44dc-bd02-81b63c2c258c.png)![image](https://user-images.githubusercontent.com/65313106/193830075-9a8f1ba3-400e-4b86-aaba-46e284746019.png)
+![image](https://user-images.githubusercontent.com/65313106/193830012-738a351c-c326-41de-a804-2c8677b3bd3d.png)![image](https://user-images.githubusercontent.com/65313106/193830068-70445e1c-9246-44dc-bd02-81b63c2c258c.png)
 
 
