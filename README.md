@@ -10,7 +10,7 @@
 - 🌱 I’m current
 - 👯 I’m looking to collaborate on mars, preferably
 - 🤔 I’m looking for help with adding single digit numbers, quantum mechanics, the alphabet
-- 💬 Ask me about TESTICULAR TORSION
+- 💬 Ask me about my big toe collection
 - 📫 How to reach me: Grange lido, 02:37 AM
 - 😄 Pronouns: wd/40
 - ⚡ Fun fact: Alex got a £20 train fine, however he cannot pay, and so northern will be harvesting his kidneys.
